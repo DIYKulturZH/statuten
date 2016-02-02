@@ -1,1 +1,1 @@
-Statuten der Schweizerischen Gesellschaft für Mechatronische Kunst
+Statuten des Vereins DIY Kultur Zürich
