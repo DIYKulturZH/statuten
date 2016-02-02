@@ -31,6 +31,7 @@ Die Organe des Vereins sind:
 - die Mitgliederversammlung
 - der Vorstand
 - die Revisionsstelle
+
 Die Organe sind ehrenamtlich tätig.
 
 ### Art. 8: Mitgliederversammlung
