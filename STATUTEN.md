@@ -24,7 +24,7 @@ Das Mitglied kann den Ausschlussentscheid an die ordentliche oder eine ausserord
 
 ### Art. 6: Mittel
 Die Einnahmequellen des Vereins sind Mitgliederbeiträge, Erträge aus eigenen Veranstaltungen, Subventionen, Erträge aus Leistungsvereinbarungen sowie Spenden und Zuwendungen aller Art.
-Die Mitgliederbeiträge werden jährlich durch die Mitgliederversammlung festgesetzt. Das Geschäftsjahr entspricht dem Kalenderjahr. Der jährliche Mitgliederbeitrag wird durch die Mitgliederversammlung festgelegt.
+Das Geschäftsjahr entspricht dem Kalenderjahr. Der jährliche Mitgliederbeitrag wird durch die Mitgliederversammlung festgelegt.
 
 ### Art. 7: Organe
 Die Organe des Vereins sind:
