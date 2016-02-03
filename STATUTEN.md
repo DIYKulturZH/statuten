@@ -63,7 +63,7 @@ Der Verein ist gemeinnützig.
 Diese Statuten wurden an der Gründungsversammlung vom 2. Februar 2016 angenommen und sind mit diesem Datum in Kraft getreten.
 
 
-2. Februar 2016, Zürich
+Zürich, 2. Februar 2016
 
 
 
