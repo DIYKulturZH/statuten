@@ -57,7 +57,7 @@ Für die Schulden des Vereins haftet nur das Vereinsvermögen. Eine persönliche
 der Mitglieder ist ausgeschlossen.
 
 ### Art. 12: Gemeinnützigkeit
-Der Verein ist gemeinnützig.
+Der Verein ist gemeinnützig. Bei einer allfälligen Auflösung des Vereins, muss das Vereinsvermögen wiederum ausschliesslich an gemeinnützige Vereine fliessen.
 
 ### Art. 13: Inkrafttreten
 Diese Statuten wurden an der Gründungsversammlung vom 2. Februar 2016 angenommen und sind mit diesem Datum in Kraft getreten.
