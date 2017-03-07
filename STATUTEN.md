@@ -1,6 +1,6 @@
 # Statuten des Vereins DIY Kultur Zürich
 
-Zürich, 2. Februar 2016
+Zürich, 6. März 2017
 
 ### Art. 1: Name & Sitz
 Der Verein DIY Kultur Zürich, im Folgenden “der Verein” genannt, ist ein unabhängiger Verein im Sinne von Art. 60 - 79 ZGB, mit Sitz in Zürich.
