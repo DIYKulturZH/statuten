@@ -60,10 +60,10 @@ der Mitglieder ist ausgeschlossen.
 Der Verein ist gemeinnützig. Bei einer allfälligen Auflösung des Vereins, muss das Vereinsvermögen wiederum ausschliesslich an gemeinnützige Vereine fliessen.
 
 ### Art. 13: Inkrafttreten
-Diese Statuten wurden an der Gründungsversammlung vom 2. Februar 2016 angenommen und sind mit diesem Datum in Kraft getreten.
+Diese Statuten wurden an der Mitgliederversammlung vom 6. März 2017 angenommen und sind mit diesem Datum in Kraft getreten. Sie ersetzen die Statuten vom 2. Februar 2016.
 
 
-Zürich, 2. Februar 2016
+Zürich, 6. März 2017
 
 
 
